@@ -2,6 +2,8 @@
 
 This is a really weird email that I received on April 1st, 2012 from an unknown sender 233558938299@dysgo.org. The email passed by Google's spam filters and found its way directly into my inbox. At first, I thought it was an elaborate April Fool's Day prank. Maybe it is. However, a tiny bit of research into the email address shows that people believe this to be a mass email sent periodically by a paranoid schizophrenic man from Japan. The email consisted only of the following 100 images arranged in this order. The text of the last image of the first email can be found at the end. It can even be found in wikileak's syria files. 
 
+https://www.reddit.com/r/conspiracy/comments/tb49i/i_got_an_email_with_just_the_following_images_as/
+
 https://www.reddit.com/r/WTF/comments/l44r1/i_just_got_this_email_at_work_i_have_no_idea_what/
 
 https://wikileaks.wikimee.info/syria-files/date/2011-36.html
