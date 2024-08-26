@@ -1,4 +1,4 @@
-# strage_emails
+# strange_emails
 
 These two are really weird emails that I received on April 1st, 2012 and October,12th, 2012, from an unknown sender 233558938299@dysgo.org. The email passed by Google's spam filters and found its way directly into my inbox. 
 A tiny bit of research into the email address shows that people believe this to be a mass email sent periodically by a paranoid schizophrenic man from Japan. The email consisted only of the following 100 images arranged in this order. The text of the last image of the first email can be found at the end. It can even be found in wikileak's syria files. 
